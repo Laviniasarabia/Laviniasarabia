@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Laviniasarabia
+- 👀 I’m interested in  aprende aprogramar
+- 🌱 I’m currently learning a criar um portifolio 
+- 📫  Meu email de contato  é lima.lavinia@escola.pr.gov.br
+-  Sou estudante do colégo Andriguetto
+-  Gosto de ouvir música 
+- Estou no primeiro ano do Encino Médio
+- Moro na Fazenda Rio Grande 
